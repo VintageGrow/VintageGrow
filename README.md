@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VintageWATER
+- 👋 Hi, I’m @VintageGROW
 - 👀 I’m interested in ...reach the mars one day.
 - 🌱 I’m currently learning ...how to receive airdrop as a 2nd income, let's make it work/
 - 💞️ I’m looking to collaborate on ...any project that helps me grow and learn this is what the future will be like.
